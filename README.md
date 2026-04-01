@@ -65,6 +65,7 @@ Emulates USB audio device for unix bluetooth support
 # Watches
 ## Analog
 ## Digital
+https://s.click.aliexpress.com/e/_c2xyGBhL Casio Replica
 
 # Clothing
 ## T-Shirts
