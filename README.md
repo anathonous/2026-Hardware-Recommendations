@@ -1,7 +1,7 @@
 <p align="center"><img src=cheeses.jpg width="300"></p><br>
 
 # Hardware recommended for none retards.
-
+unless you wanna get scammed by the man.
  - Use affiliate links
  - I get comission.
  - Cheese is good.
