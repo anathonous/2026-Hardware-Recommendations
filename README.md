@@ -93,13 +93,14 @@ https://s.click.aliexpress.com/e/_c3NoRu45  Black tuning no mice.
 
 # Headphone Cables
 ## IEM Cables
-
+https://s.click.aliexpress.com/e/_c35hOzYH IEM Replacement cable.
 # DAC (Headphone AMP)
 
 ## USB-C
 https://s.click.aliexpress.com/e/_c4M6b1Od CX31993 A8
 # Bluetooth Audio SBC 
 Emulates USB audio device for unix bluetooth support
+https://s.click.aliexpress.com/e/_c4FgRQfr UGREEN
 
 # Keyboards
 ## USB
