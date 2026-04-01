@@ -19,6 +19,11 @@ https://www.ebay.ca/e/_electronics/refurbished-lenovo?mkcid=1&mkrid=706-53473-19
 ### $100
 ### $200
 ### $300
+Lenovo X1 Carbon 5th Gen https://ebay.us/okzbd3
+Lenovo X1 Carbon 6th Gen https://ebay.us/CxfLOd
+Lenovo X1 Carbon 6th Gen https://ebay.us/tjJWNF
+Lenovo X1 Carbon 6th Gen https://ebay.us/Q86Si3
+Lenovo X1 Carbon 7th gen https://ebay.us/Rs1WbO
 ### $400
 ### $500
 ### $600
