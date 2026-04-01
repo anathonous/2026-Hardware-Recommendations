@@ -6,7 +6,8 @@
  - I get comission.
  - Cheese is good.
  - Get Aliexpress.
- - Link to Google Pay.
+ - Setup Google Pay on Google.
+ - Use Google Pay while using Aliexpress.
  - Get Consumer Protection thought Google without using Credit Card online.
 
 # Laptops 
