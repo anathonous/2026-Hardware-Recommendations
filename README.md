@@ -71,7 +71,11 @@ Lenovo P50 https://ebay.us/abveIX<br>
 
 ## Android
 ### Pixel 6
-### Pixel 3
+https://ebay.us/91oR3x Pixel 6 128 Green
+### Pixel 7
+https://ebay.us/SdrBvn Pixel 7 128 Black
+### Pixel 8
+https://ebay.us/k2wgYu Pixel 8 128 Black
 
 ## Linux
 
