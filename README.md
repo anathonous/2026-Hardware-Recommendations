@@ -8,9 +8,9 @@
  - Get Aliexpress.
  - Setup Google Pay on Google.
  - Use Google Pay while using Aliexpress.
- - Get Consumer Protection thought Google without using Credit Card online. Checkout will show Google Pay if signed into Google.
-Alibaba Referral for signup. https://www.alibaba.com/x/B1iuTs?ck=activity
-Aliexpress Referral for signup. ___
+ - Get Consumer Protection thought Google without using Credit Card online. Checkout will show Google Pay if signed into Google.<br>
+Alibaba Referral for signup. https://www.alibaba.com/x/B1iuTs?ck=activity<br>
+Aliexpress Referral for signup. ___<br>
 # Laptops 
 
 ## Thinkpads
