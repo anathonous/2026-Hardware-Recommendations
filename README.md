@@ -19,26 +19,26 @@ https://www.ebay.ca/e/_electronics/refurbished-lenovo?mkcid=1&mkrid=706-53473-19
 ### $100
 ### $200
 ### $300
-Lenovo X1 Carbon 5th Gen https://ebay.us/okzbd3
-Lenovo X1 Carbon 6th Gen https://ebay.us/CxfLOd
-Lenovo X1 Carbon 6th Gen https://ebay.us/tjJWNF
-Lenovo X1 Carbon 6th Gen https://ebay.us/Q86Si3
-Lenovo X1 Carbon 7th gen https://ebay.us/Rs1WbO
-Lenovo X390 https://ebay.us/B0GRKq
-Lenovo X1 Yoga https://ebay.us/hASbwI
-Lenovo X1 Yoga https://ebay.us/mesNfT
-Lenovo X1 Yoga https://ebay.us/wOXlq5
-Lenovo X1 Yoga https://ebay.us/UOUY3g
+Lenovo X1 Carbon 5th Gen https://ebay.us/okzbd3<br>
+Lenovo X1 Carbon 6th Gen https://ebay.us/CxfLOd<br>
+Lenovo X1 Carbon 6th Gen https://ebay.us/tjJWNF<br>
+Lenovo X1 Carbon 6th Gen https://ebay.us/Q86Si3<br>
+Lenovo X1 Carbon 7th gen https://ebay.us/Rs1WbO<br>
+Lenovo X390 https://ebay.us/B0GRKq<br>
+Lenovo X1 Yoga https://ebay.us/hASbwI<br>
+Lenovo X1 Yoga https://ebay.us/mesNfT<br>
+Lenovo X1 Yoga https://ebay.us/wOXlq5<br>
+Lenovo X1 Yoga https://ebay.us/UOUY3g<br>
 
 ### $400
-Lenovo X1 Carbon 8th Gen https://ebay.us/PFgGFK
-Lenovo T14 https://ebay.us/gtSIkq
-Lenovo T14 https://ebay.us/3cOkbf
-Lenovo T14 https://ebay.us/3cOkbf
-Lenovo T490 https://ebay.us/l5Srzv
-Lenovo T490 https://ebay.us/kkqfK6
-Lenovo T490 https://ebay.us/PwNXGi
-Lenovo X395 https://ebay.us/BUmgyB
+Lenovo X1 Carbon 8th Gen https://ebay.us/PFgGFK<br>
+Lenovo T14 https://ebay.us/gtSIkq<br>
+Lenovo T14 https://ebay.us/3cOkbf<br>
+Lenovo T14 https://ebay.us/3cOkbf<br>
+Lenovo T490 https://ebay.us/l5Srzv<br>
+Lenovo T490 https://ebay.us/kkqfK6<br>
+Lenovo T490 https://ebay.us/PwNXGi<br>
+Lenovo X395 https://ebay.us/BUmgyB<br>
 
 
 ### $500
