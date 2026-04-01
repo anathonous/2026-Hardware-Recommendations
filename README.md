@@ -37,6 +37,7 @@ Lenovo X1 Yoga https://ebay.us/mesNfT<br>
 Lenovo X1 Yoga https://ebay.us/wOXlq5<br>
 Lenovo X1 Yoga https://ebay.us/UOUY3g<br>
 Lenovo Yoga 460 https://ebay.us/6chNzO<br>
+Lenvo Yoga C13 Yoga (Chrome/Android apps) https://ebay.us/QjOuV2<br>
 
 ### $400
 Lenovo X1 Carbon 8th Gen https://ebay.us/PFgGFK<br>
