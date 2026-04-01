@@ -45,7 +45,7 @@ You don't need the latest and greatest. Most laptops will take Windows 11 or Lin
 ## USB-C
 
 # Bluetooth Audio SBC 
-Emulatest USB audio device for unix bluetooth support
+Emulates USB audio device for unix bluetooth support
 
 # Keyboards
 ## USB
