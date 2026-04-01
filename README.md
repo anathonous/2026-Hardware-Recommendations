@@ -4,8 +4,7 @@
 
  - Use affiliate links
  - I get comission.
- - Cheese is good.<br>
- <br>
+ - Cheese is good.
  - Get Aliexpress.
  - Link to Google Pay.
  - Get Consumer Protection thought Google without using Credit Card online.
