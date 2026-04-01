@@ -1,14 +1,14 @@
 <p align="center"><img src=cheeses.jpg width="300"></p><br>
 
-# Hardware recommended for none retards.
-unless you wanna get scammed by the man.
+# Hardware recommendations.
+
  - Use affiliate links
  - I get comission.
  - Cheese is good.
  - Get Aliexpress.
  - Setup Google Pay on Google.
  - Use Google Pay while using Aliexpress.
- - Get Consumer Protection thought Google without using Credit Card online.
+ - Get Consumer Protection thought Google without using Credit Card online. Checkout will show Google Pay if signed into Google.
 
 # Laptops 
 
