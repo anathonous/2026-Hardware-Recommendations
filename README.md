@@ -26,8 +26,51 @@ You don't need the latest and greatest. Most laptops will take Windows 11 or Lin
 ## Android
 ## Linux
 
+# Smart Watches
+
+# Cases
+## 
+
 # Headphones
 
 ## TWS
 ## IEM
 ## Overear
+
+# DAC (Headphone AMP)
+
+## USB-C
+
+# Bluetooth Audio SBC 
+Emulatest USB audio device for unix bluetooth support
+
+# Keyboards
+## USB
+## Wireless
+
+# Mice
+## Wired
+## Wireless
+
+# Cables
+## USB-C to USB-C
+
+# Drive Enclosures
+## NVME 
+
+# Watches
+## Analog
+## Digital
+
+# Clothing
+## T-Shirts
+## Summerwear
+
+# Earrings
+## Tunnels
+
+# Smartwatch Bands
+## Pixel Watch 1
+
+
+
