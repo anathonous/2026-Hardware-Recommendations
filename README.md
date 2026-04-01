@@ -17,7 +17,11 @@ unless you wanna get scammed by the man.
 You don't need the latest and greatest. Most laptops will take Windows 11 or Linux just fine. You can even use MacOSX on some.<br>
 https://www.ebay.ca/e/_electronics/refurbished-lenovo?mkcid=1&mkrid=706-53473-19255-0&siteid=2&campid=5339147296&toolid=20014&customid=N&mkevt=1
 ### $100
+ 
 ### $200
+Lenovo T430 https://ebay.us/iYj6FO<br>
+Lenovo T430 https://ebay.us/WP1ISC<br>
+Lenovo T460s https://ebay.us/ka1BvL<br>
 ### $300
 Lenovo X1 Carbon 5th Gen https://ebay.us/okzbd3<br>
 Lenovo X1 Carbon 6th Gen https://ebay.us/CxfLOd<br>
