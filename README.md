@@ -36,6 +36,7 @@ You don't need the latest and greatest. Most laptops will take Windows 11 or Lin
 
 ## TWS
 ## IEM
+https://s.click.aliexpress.com/e/_c3NoRu45  Black tuning no mice. 
 ## Overear
 
 # Headphone Cables
@@ -43,7 +44,7 @@ You don't need the latest and greatest. Most laptops will take Windows 11 or Lin
 # DAC (Headphone AMP)
 
 ## USB-C
-
+https://s.click.aliexpress.com/e/_c4M6b1Od CX31993 A8
 # Bluetooth Audio SBC 
 Emulates USB audio device for unix bluetooth support
 
