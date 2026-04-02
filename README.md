@@ -93,8 +93,12 @@ https://ebay.us/SdrBvn Pixel 7 128 Black
 ### Pixel 8
 https://ebay.us/k2wgYu Pixel 8 128 Black
 ## Linux
-https://ebay.us/fmevxD Pixel 3a / Pixel 3a XL - Mobian/Droidian/postMarktetOS
-
+https://ebay.us/fmevxD Pixel 3a / Pixel 3a XL - Mobian/Droidian/postMarktetOS<br>
+https://s.click.aliexpress.com/e/_c3p4egBn OnePLUS 6 Linux Mobian/Droidian/postMarktetOS<br>
+https://s.click.aliexpress.com/e/_c4WYIi3R OnePLUS 6T Linux Mobian/Droidian/postMarktetOS<br>
+https://s.click.aliexpress.com/e/_c3i29ZM9  Sony Xperia 10 V Sailfish OS <br>
+https://ebay.us/Su0dNg Sony Xperia 10 VI Sailfish OS<br>
+https://ebay.us/bXeOo1 Sony Xperia 10 VI Sailfish OS<br>
 # Smart Watches
 ## Pixel 1 Watch LTE/WIFI
 https://ebay.us/MU72ba Pixel Watch 1 Wifi<br>
