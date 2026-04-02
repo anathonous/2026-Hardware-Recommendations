@@ -56,11 +56,25 @@ Lenovo T490 https://ebay.us/l5Srzv<br>
 Lenovo T490 https://ebay.us/kkqfK6<br>
 Lenovo T490 https://ebay.us/PwNXGi<br>
 Lenovo X395 https://ebay.us/BUmgyB<br>
-
-
 ### $500
 ### $600
 Lenovo P50 https://ebay.us/abveIX<br>
+#### Linux / *BSD
+https://openbsd.org
+https://freebsd.org
+https://fedoraproject.org
+https://fedoraproject.org/atomic-desktops/silverblue/
+https://almalinux.org/
+https://rockylinux.org/
+https://www.debian.org
+https://www.deepin.org/index/en
+https://system76.com/pop/
+https://www.mageia.org
+https://zorin.com/os/
+https://manjaro.org/
+https://garudalinux.org/
+https://thorium.rocks/thoriumos
+
 # Cell Phone Carrier
 Carriers in Canada are a scam for the most part. Public Mobile is the best. It's a virtual carrier on Telus. Works great and the plans are good too. Right now for $40 a month. You can get Unlimited calling/text in Canada/US and 150GB Data.<br>
 https://publicmobile.ca/en/sk/plans?referral=KWTX4O Use referral link and get a 10 dollar credit for signing up.
