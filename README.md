@@ -89,11 +89,12 @@ https://ebay.us/fmevxD Pixel 3a / Pixel 3a XL - Mobian/Droidian/postMarktetOS
 
 # Smart Watches
 ## Pixel 1 Watch LTE/WIFI
-https://ebay.us/MU72ba Pixel Watch 1 Wifi
+https://ebay.us/MU72ba Pixel Watch 1 Wifi<br>
 https://ebay.us/ZFogCB Pixel Watch 1 Wifi/Lte
 
 # Cases
 ## Aliexpress
+https://s.click.aliexpress.com/e/_c4eCe3Y9 Best Pixel Cases
 
 # Headphones
 
@@ -143,9 +144,12 @@ https://s.click.aliexpress.com/e/_c2xyGBhL Casio Replica
 
 # Earrings
 ## Tunnels
-
+https://s.click.aliexpress.com/e/_c4axxrRj
 # Smartwatch Bands
 ## Pixel Watch 1
+https://s.click.aliexpress.com/e/_c3lsXifB<br>
+https://s.click.aliexpress.com/e/_c2ygVCrn<br>
+https://s.click.aliexpress.com/e/_c3l0aJ21
 
 
 
