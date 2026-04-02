@@ -62,12 +62,20 @@ Lenovo P50 https://ebay.us/abveIX<br>
 # Phones
 ## BlackBerry
 ### BB 9900
+https://s.click.aliexpress.com/e/_c3pNRXVP
 ### BB Q5
-### BB Q10
+https://s.click.aliexpress.com/e/_c4Oj6NQp
+### BB Q 10
+https://s.click.aliexpress.com/e/_c3BgF0bX
 ### BB Z10
+https://ebay.us/c5HKlR
 ### BB Z30
+https://ebay.us/rEZydJ
 ### BB Q20
+https://ebay.us/dE8hlw
 ### BB Q30
+https://ebay.us/GMOyrU
+
 
 ## Android
 ### Pixel 6
