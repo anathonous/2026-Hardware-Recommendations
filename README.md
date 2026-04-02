@@ -17,6 +17,8 @@ Aliexpress Referral for signup. ___<br>
 
 You don't need the latest and greatest. Take the time to look into the CPU specs (Core Counts) and RAM amounts. Most laptops will take Windows 11 or Linux just fine. You can even use MacOSX on some. <br>
 https://www.ebay.ca/e/_electronics/refurbished-lenovo?mkcid=1&mkrid=706-53473-19255-0&siteid=2&campid=5339147296&toolid=20014&customid=N&mkevt=1
+<br><br>
+More expensive doesn't always mean better.
 ### $100
  
 ### $200
@@ -49,6 +51,7 @@ Lenovo X1 Carbon 9th Gen https://ebay.us/unBGwJ<br>
 Lenovo T14 https://ebay.us/gtSIkq<br>
 Lenovo T14 https://ebay.us/3cOkbf<br>
 Lenovo T14 https://ebay.us/3cOkbf<br>
+Lenovo T14 https://ebay.us/3imqLV<br>
 Lenovo T490 https://ebay.us/l5Srzv<br>
 Lenovo T490 https://ebay.us/kkqfK6<br>
 Lenovo T490 https://ebay.us/PwNXGi<br>
