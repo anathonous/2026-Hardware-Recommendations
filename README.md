@@ -135,6 +135,7 @@ https://amzn.to/3NVDBpG MX Master Keys Mini
 ## Wired
 ## Wireless
 https://amzn.to/4cgPq2Z MX Master S3
+https://amzn.to/41J4n7Q G Pro Wireless
 
 # Cables
 ## USB-C to USB-C
