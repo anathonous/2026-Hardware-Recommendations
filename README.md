@@ -136,7 +136,14 @@ https://amzn.to/3PCkpOi Creative Zen Air Pro
 
 ## IEM
 https://s.click.aliexpress.com/e/_c3NoRu45 KZ ZS12 Pro X<br>
-https://s.click.aliexpress.com/e/_c2ynfgup KZ EDX Pro X
+https://s.click.aliexpress.com/e/_c2ynfgup KZ EDX Pro X - (Bass heavy, Pretty good for price. Only come with 1 set of small silicon earcups)
+## IEM Silicon Earcups
+https://s.click.aliexpress.com/e/_c3rxuLMZ Silicon Earcups<br>
+https://s.click.aliexpress.com/e/_c37r3Jyp<br>
+https://s.click.aliexpress.com/e/_c3Ap4zOd<br>
+https://s.click.aliexpress.com/e/_c39RGSCV<br>
+https://s.click.aliexpress.com/e/_c3178nmN<br>
+
 ## Overear
 https://amzn.to/4dUJiyz Creative Zen 2 Hybrid
 # Headphone Cables
