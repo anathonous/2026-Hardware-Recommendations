@@ -136,7 +136,7 @@ https://amzn.to/3PCkpOi Creative Zen Air Pro
 
 ## IEM
 https://s.click.aliexpress.com/e/_c3NoRu45 KZ ZS12 Pro X<br>
-https://s.click.aliexpress.com/e/_c2ynfgup KZ EDX Pro X - (Bass heavy, Pretty good for price. Only come with 1 set of small silicon earcups)
+https://s.click.aliexpress.com/e/_c2ynfgup KZ EDX Pro X - (Bass heavy, Pretty good for price. Only come with 1 set of small silicon earcups. not the best accoustics with small eartips if you have big ears, would recommend getting a set.)
 ## IEM Silicon Earcups
 https://s.click.aliexpress.com/e/_c3rxuLMZ Silicon Earcups<br>
 https://s.click.aliexpress.com/e/_c37r3Jyp<br>
